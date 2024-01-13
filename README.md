@@ -1,1 +1,1 @@
-This folder is designated for the 1851 Scholarship application and contains a completed paper that is currently undergoing internal review. Therefore, we cannot submit it to arXiv. I apologize for any inconvenience.
+This folder is designated for postdoc position application and contains a completed paper that is currently undergoing internal review. Therefore, we cannot submit it to arXiv. I apologize for any inconvenience.
